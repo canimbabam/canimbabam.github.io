@@ -1,5 +1,5 @@
 ## Dünyamı değiştiren bayram sabahı…
 
-Arefe günü bayramlık aldik boncuk kızıma. Bayram kutlayacaktık..
+Arefe günü bayramlık aldık boncuk kızıma. Bayram kutlayacaktık..
 
-Sonra neler mi oldu? Devamını Allah nasıp ederse uzun uzun yazacağım.
+Sonra neler mi oldu? Devamını Allah nasip ederse uzun uzun yazacağım.
