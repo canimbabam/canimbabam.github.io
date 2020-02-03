@@ -1,1 +1,1 @@
-Sitemap: www.guzelbabam.com/sitemap.xml
+Sitemap: sitemap.xml
